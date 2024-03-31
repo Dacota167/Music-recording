@@ -1,6 +1,5 @@
-## Here
-Download: [click](https://tinyurl.com/j779zse3)  
-
+## Here  
+___
 ## Showcase
 ![315326294-897e3fd0-a90e-497d-ba9e-93cc0135582f](https://github.com/LoveMeRin/LoveMeRin1/assets/119917297/4b1046ad-96ae-49b4-9254-8ac925ff29a7)
 
