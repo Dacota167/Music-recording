@@ -1,15 +1,9 @@
-## Here  
-___
-## Showcase
-![315326294-897e3fd0-a90e-497d-ba9e-93cc0135582f](https://github.com/LoveMeRin/LoveMeRin1/assets/119917297/4b1046ad-96ae-49b4-9254-8ac925ff29a7)
-
-## Key Features:
-Full Access: Enjoy all the features of Sony Vegas.
-License Bypass: Say goodbye to subscription fees! This free version provides unrestricted access without requiring a paid license.
-Customization: Use free Sony vegas. Use any effects.
-Compatibility: The Sony Vegas works with various plugins, and communication platforms where montage is supported.
-
-## How It Works:
-Download and Install: Get the executor from this repository and follow the installation instructions.
-Activate: Launch Launcher. No activation key needed!
-Explore: Experiment with montage, prank friends.
+# Filming videos
+____
+🔥🔥🔥creating videos on youtube, promoting your channel, helping to develop your channel, creating a unique plot for videos 🎥📣
+![YouTube Video Likes](https://img.shields.io/youtube/likes/:videoId)
+____
+> Regylarity of publications and columns is the most important factor in the success of the channel💡
+>> It is better to insert the most interesting intriguing moments at the beginning of the video that will arouse the viewers interest and desire to watch further
+____
+![logo](https://www.google.com/search?client=firefox-b-d&sca_esv=15d5bda161c3d604&sca_upv=1&q=youtube+image&tbm=isch&chips=q:youtube+image,online_chips:profile+picture:qDUOHY2z7cA%3D&usg=AI4_-kSwWu5ahTt0KLLvcvx_-BvwlWR3Kg&sa=X&ved=2ahUKEwim0ZT_5p6FAxXyhf0HHV2LB9QQgIoDKAR6BAgYEA4&biw=1918&bih=763&dpr=1#imgrc=DQjMlpI26FO6-M, "Youtube")
