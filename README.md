@@ -1,7 +1,7 @@
 # Filming videos
 ____
 🔥🔥🔥creating videos on youtube, promoting your channel, helping to develop your channel, creating a unique plot for videos 🎥📣
-![YouTube Video Likes](https://img.shields.io/youtube/likes/:videoId)
+![YouTube Video Likes](https://youtu.be/4cgpu9L2AE8?si=Yrn50oKtb45izNI9)
 ____
 Regylarity of publications and columns is the most important factor in the success of the channel💡
 It is better to insert the most interesting intriguing moments at the beginning of the video that will arouse the viewers interest and desire to watch further👁️
