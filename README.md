@@ -22,4 +22,3 @@ ____
   </a>
 </div>
 <img src="https://komarev.com/ghpvc/?username=your-github-username&style=flat-square&color=blue" alt=""/>
-![](https://www.reddit.com/r/gifs/comments/6ws0qc/new_youtube_logo/)
