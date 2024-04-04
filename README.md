@@ -6,7 +6,8 @@ ____
 >>It is better to insert the most interesting intriguing moments at the beginning of the video that will arouse the viewers interest and desire to watch further👁️
 
 ____
-![image](https://github.com/Dacota167/Music-recording/assets/165401466/cd6bfd28-f9f1-4615-b9b7-56fcb175d1aa)
+![image](https://github.com/Dacota167/Music-recording/assets/165401466/6c54b3ca-8e10-4733-b8f8-142d31e3f28d)
+
 
 
 
