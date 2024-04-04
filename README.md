@@ -6,10 +6,10 @@ ____
 >>It is better to insert the most interesting intriguing moments at the beginning of the video that will arouse the viewers interest and desire to watch further👁️
 
 ____
+![image](https://github.com/Dacota167/Music-recording/assets/165401466/cd6bfd28-f9f1-4615-b9b7-56fcb175d1aa)
 
 
-![image](![image](https://github.com/Dacota167/Music-recording/assets/165401466/69446fc3-a970-46ed-976a-91fff161f6da)
-)
+
 <div id="badges">
   <a href="your-linkedin-URL">
     <img src="https://img.shields.io/badge/LinkedIn-blue?style=for-the-badge&logo=linkedin&logoColor=white" alt="LinkedIn Badge"/>
