@@ -8,7 +8,8 @@ ____
 ____
 
 
-![image](https://github.com/Dacota167/youtube/assets/165401466/39bcfa32-42c6-4826-bce7-56790fc093ce)
+![image](![image](https://github.com/Dacota167/Music-recording/assets/165401466/69446fc3-a970-46ed-976a-91fff161f6da)
+)
 <div id="badges">
   <a href="your-linkedin-URL">
     <img src="https://img.shields.io/badge/LinkedIn-blue?style=for-the-badge&logo=linkedin&logoColor=white" alt="LinkedIn Badge"/>
